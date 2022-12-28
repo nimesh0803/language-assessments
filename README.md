@@ -18,3 +18,11 @@ ans immaculate
 
 5)Because her department was increasingly short-staffed, the scope of her work began to ____ upon the limits of her already ______ bandwidth.<br />
 ans encroach strained
+
+6)The car company's losses continued to ____ as the product recalls drove customers away, rarely a ______ future growth..<br />
+ ans mount and precussor
+ 
+ 7)The students were ____________  to find that their hard work was all for nothing, and they had. failed the assignment regardless..<br />
+ ans invigorated
+ 
+ 
