@@ -9,7 +9,7 @@ a)dissimulation and coveting
 2)VINDICTIVE is to REVENGE as..<br />
 artful is to rendition.
 
-3)FALLIBLE is to MISTAKE as
+3)FALLIBLE is to MISTAKE as.<br />
 RATIONAL is to REASON
 
 4)His new car was already a mess even though he had promised himself he would
